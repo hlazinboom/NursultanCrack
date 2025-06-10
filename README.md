@@ -1,0 +1,2 @@
+# NursultanCrack
+NursultanCrack.exe
